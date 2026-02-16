@@ -1,3 +1,7 @@
-INCREDIBLES (Group-E)  YAT407N_ONL2_DRT3_G2_DEPI2
+اسم المشروع : SAS
+وصف المشروع : Cosmotic Brand
+اعضاء الفريق : 1- حسام فراج علي حسن  2-منة الله علي ابراهيم علي  
 
-https://drive.google.com/drive/folders/1tQNh9o6Q1XZnneCLLNqmfpKVdK_PqEsj?usp=drive_link
+
+
+https://drive.google.com/drive/folders/1lD23R_dOtKFX37dQgN3qBSKTDTPA-KWk
