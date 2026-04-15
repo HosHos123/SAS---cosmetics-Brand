@@ -1,6 +1,6 @@
 >  **Project Files link:** https://drive.google.com/drive/folders/1lD23R_dOtKFX37dQgN3qBSKTDTPA-KWk?usp=sharing
 
-# [SAS Natura]
+# [SAS Natural]
 ### _A Complete Marketing Strategy for a Modern Natural Cosmetics Brand_
 
 ---
