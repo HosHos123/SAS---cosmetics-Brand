@@ -6,9 +6,9 @@
 ---
 
 ##  Team Members
-- **1-Hossam Farag Ali Hassan – Paid Advertising Specialist**  
-- **2-Menna Allah Ali Ibrahim Ali – Market Research & Competitor Analysis**  
-- **3-Meram Hamdy Ibrahim Mohamed – Content Writing**  
+- **1-Hossam Farrag Ali Hassan – Paid Advertising Specialist**  
+- **2-Mennatuallah Ali Ibrahim Ali – Market Research & Competitor Analysis**  
+- **3-Meram Hamdy Ibrahem Mohamed – Content Writing**  
 - **4-Mai Amr Mahmoud Saadallah – Marketing Strategy Development**  
 ---
 
