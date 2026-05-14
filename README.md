@@ -2,9 +2,8 @@
 
 
 >  **Platforms Links :**
-##1-Facebook Link https://www.facebook.com/sas.natural 
->2- Instagram Link https://www.instagram.com/sas_naturals?igsh=cWl1MGxocGx1bmY )الصفحه مغلقه حاليا وجاري 
-انشاء صفحه اخري وربطها بصفحة الفيس بوك
+>1-Facebook Link https://www.facebook.com/sas.natural 
+>2- Instagram Link https://www.instagram.com/sas_naturals?igsh=cWl1MGxocGx1bmY )
 >3- TikTok Link https://www.tiktok.com/@sasnaturals?_r=1&_t=ZS-93kI0yJjFIX 
 >4- WhatsApp Business Catalog Link https://wa.me/c/201557065630
 >5- website Link https://mennasabek5.wixsite
