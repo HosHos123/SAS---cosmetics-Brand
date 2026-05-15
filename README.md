@@ -1,4 +1,4 @@
-###     Final Project presentation Link: [In progress](https://canva.link/fd0np8wfcyrsbh1)
+###     Final Project presentation Link:(https://canva.link/fd0np8wfcyrsbh1)
 
 >  **Project Files link:** https://drive.google.com/drive/folders/1lD23R_dOtKFX37dQgN3qBSKTDTPA-KWk?usp=sharing
 
